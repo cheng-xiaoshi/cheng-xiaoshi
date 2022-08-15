@@ -1,4 +1,4 @@
-**xia, akito or valen !!**
+**xia, domi or akito !!**
 
 he/they - panromantic asexual questioning lithromantic
 
