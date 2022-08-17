@@ -1,6 +1,6 @@
 **domi, xiaoshi or akito !!**
 
-he/they - panromantic asexual questioning lithromantic
+they/he - panromantic asexual lithflux possibly aroflux
 
 a genderqueer asshole but also a demiboy
 
