@@ -4,7 +4,7 @@ they/he - panromantic asexual lithflux possibly aroflux
 
 a genderqueer asshole but also a demiboy
 
-read [rentry](https://rentry.co/linkup) and [patreon](https://patreon.com/shinonomeakito)
+read [rentry](https://rentry.co/descend) please! also, i have a [cbox](https://my.cbox.ws/akiter) if you wanna reach out to me
 
 STREAM [GUERRILLA](https://open.spotify.com/track/0tYZo2UhV1lrUez5CA0Iyw?si=229b59abf4e04370) BY ATEEZ NOW ??? also listen to day6 if ur emo/j
 
