@@ -1,4 +1,4 @@
-**domi, xiaoshi or akito !!**
+**xiaoshi, domi, yves or akito !!**
 
 they/he - panromantic asexual lithflux possibly aroflux
 
